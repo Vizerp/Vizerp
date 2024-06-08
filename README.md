@@ -2,7 +2,7 @@
 ![graphics1](https://media.discordapp.net/attachments/1199017411999965195/1248348030193631262/96_sin_titulo_20240606134858.png?ex=66635633&is=666204b3&hm=8617130f94440e5c249e3c7884e17410fb958783264d8424a275bfe2e6b7aa77&=&format=webp&quality=lossless&width=1015&height=662)
 
 
-> _HELLO THERE. YOU'RE HERE FROM PONY TOWN?.THEN READ!!. I usually either sit at the phighting zone with my partner or friends or just doing something offtab!! Feel **absolutely** free to interact as i dont bite and look for new interactions!. I can prefer to be nonverbal sometimes so better whisper if u wanna have a proper dialogue. You can find me on russian safe server in the Mineshield zone or by the boat and on the safe server in the phighting zone or rain world/ultrakill chilly place. (By the cod fandom.)_
+> _HELLO THERE. YOU'RE HERE FROM PONY TOWN?.THEN READ!!. I usually either sit at the phighting zone with my partner or friends or just doing something offtab!! Feel **absolutely** free to interact as i dont bite and look for new interactions!. I can prefer to go nonverbal sometimes so better whisper if u wanna have a proper interaction. You can find me on russian safe server in the Mineshield zone or by the boat and on the safe server in the phighting zone or rain world/ultrakill chilly place. (By the cod fandom.)_
 
  ![divider2](https://media.discordapp.net/attachments/1156947236702392351/1248351411045925014/Untitled9_20240606220229.png?ex=66635959&is=666207d9&hm=b3536a6023da745f2128343fdd51760e5b934b74a8728d7eb79deb6c86fd4840&=&format=webp&quality=lossless&width=1440&height=292)
 
