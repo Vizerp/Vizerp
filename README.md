@@ -6,7 +6,7 @@
 
  ![divider2](https://media.discordapp.net/attachments/1156947236702392351/1248351411045925014/Untitled9_20240606220229.png?ex=66635959&is=666207d9&hm=b3536a6023da745f2128343fdd51760e5b934b74a8728d7eb79deb6c86fd4840&=&format=webp&quality=lossless&width=1440&height=292)
 
-  ____________________________________ ![aboutme](https://media.discordapp.net/attachments/1156947236702392351/1248361356562927676/Untitled10_20240606224214.png?ex=6663629c&is=6662111c&hm=d7c92cd1c464863165291a3373ec38873ca2293ca5b2b1ec8aed79175bc74130&=&format=webp&quality=lossless&width=625&height=375)
+  ____________________________________ ![aboutme](https://media.discordapp.net/attachments/1156947236702392351/1248361356562927676/Untitled10_20240606224214.png?ex=6669515c&is=6667ffdc&hm=6824428df384f96a013cd9bcc4ab495757873569b71ea5c2193a50a7cd5eaad6&=&format=webp&quality=lossless&width=625&height=375)
 
 
 > _My name is Vizer, Pepper or maybe some of you know me as a Silver.. I go by any prns, you can use They/Them!. I AM a minor and i do not wanna have weird interaction with adults, but jokes are absolutely fine. I love Venomshank, Subspace and Valk with all my heart, but im not a system, a kin or irl. U can, of course, call me by the characters name and do little silly rps! I do not mind. I have an awesome [boyfriend](https://github.com/ACIDICFLAVOUR) (hi GHOST HI HELLO HI HI!!!) and we are DESPERATE for a friend group. Please hggusy pelase ... All biografts and Swords in area will be adopted and u have no choice._
