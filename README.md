@@ -9,7 +9,7 @@
   ____________________________________ ![aboutme](https://media.discordapp.net/attachments/1156947236702392351/1248361356562927676/Untitled10_20240606224214.png?ex=6669515c&is=6667ffdc&hm=6824428df384f96a013cd9bcc4ab495757873569b71ea5c2193a50a7cd5eaad6&=&format=webp&quality=lossless&width=625&height=375)
 
 
-> _My name is Vizer, Pepper or maybe some of you know me as a Silver.. I go by any prns, you can use They/Them!. I AM a minor and i do not wanna have weird interaction with adults, but jokes are absolutely fine. I love Venomshank, Subspace and Valk with all my heart, but im not a system, a kin or irl. U can, of course, call me by the characters name and do little silly rps! I do not mind. I have an awesome [boyfriend](https://github.com/ACIDICFLAVOUR) (hi GHOST HI HELLO HI HI!!!) and we are DESPERATE for a friend group. Please hggusy pelase ... All biografts and Swords in area will be adopted and u have no choice._
+> _My name is Vizer, Saboteur, Pepper or maybe some of you know me as a Silver.. I go by any prns, you can use They/Them!. I AM a minor and i do not wanna have weird interaction with adults, but jokes are absolutely fine. I love Venomshank, Subspace and Valk with all my heart, but im not a system, a kin or irl. U can, of course, call me by the characters name and do little silly rps! I do not mind. I have an awesome [boyfriend](https://github.com/ACIDICFLAVOUR) (hi GHOST HI HELLO HI HI!!!) and we are DESPERATE for a friend group. Please hggusy pelase ... All biografts and Swords in area will be adopted and u have no choice._
 
 ______
 
