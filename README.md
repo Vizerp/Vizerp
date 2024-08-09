@@ -1,26 +1,42 @@
-  > ### ***ARE YOU PREPARED TO FEEL THE WRATH OF THE UNDEAD?.***
-![graphics1](https://media.discordapp.net/attachments/1199017411999965195/1248348030193631262/96_sin_titulo_20240606134858.png?ex=66635633&is=666204b3&hm=8617130f94440e5c249e3c7884e17410fb958783264d8424a275bfe2e6b7aa77&=&format=webp&quality=lossless&width=1015&height=662)
+___
+![div1](https://64.media.tumblr.com/05f308bc2b81d4cb8f8fa68661e3e4d6/88a3859617d1e527-8a/s2048x3072/f339569f6d9ca8c967e00f7f5764b19bef349fa5.pnj)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![graph](https://media.discordapp.net/attachments/1199017411999965195/1271304900281761894/image.png?ex=66b6da73&is=66b588f3&hm=1fbabc081e71f8b62f820e769ed338294ce15fd537d5c2977ed95cd918a90251&=&format=webp&quality=lossless&width=590&height=462)
+
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ***◜ Life and death,***
+
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ ***Will always lead you into love and regret . ◝***
 
 
-> _HELLO THERE. YOU'RE HERE FROM PONY TOWN?.THEN READ!!. I usually either sit at the phighting zone with my partner or friends or just doing something offtab!! Feel **absolutely** free to interact as i dont bite and look for new interactions!. I can prefer to go nonverbal sometimes so better whisper if u wanna have a proper interaction. You can find me on russian safe server in the Mineshield zone or by the boat and on the safe server in the phighting zone or rain world/ultrakill chilly place. (By the cod fandom.)_
 
- ![divider2](https://media.discordapp.net/attachments/1156947236702392351/1248351411045925014/Untitled9_20240606220229.png?ex=66635959&is=666207d9&hm=b3536a6023da745f2128343fdd51760e5b934b74a8728d7eb79deb6c86fd4840&=&format=webp&quality=lossless&width=1440&height=292)
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ This is mostly for ponytown . 
 
-  ____________________________________ ![aboutme](https://media.discordapp.net/attachments/1156947236702392351/1248361356562927676/Untitled10_20240606224214.png?ex=6669515c&is=6667ffdc&hm=6824428df384f96a013cd9bcc4ab495757873569b71ea5c2193a50a7cd5eaad6&=&format=webp&quality=lossless&width=625&height=375)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Vizer / Saboteur / Pepper .**
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**They/It / Any .**
 
-> _My name is Vizer, Saboteur, Pepper or maybe some of you know me as a Silver.. I go by any prns, you can use They/Them!. I AM a minor and i do not wanna have weird interaction with adults, but jokes are absolutely fine. I love Venomshank, Subspace and Valk with all my heart, but im not a system, a kin or irl. U can, of course, call me by the characters name and do little silly rps! I do not mind. I have an awesome [boyfriend](https://github.com/ACIDICFLAVOUR) (hi GHOST HI HELLO HI HI!!!) and we are DESPERATE for a friend group. Please hggusy pelase ... All biografts and Swords in area will be adopted and u have no choice._
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Ru / Eng .**
 
-______
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Basic [DNI.](https://dni-criteria.carrd.co/)**
 
-> _DNI is [basic!!.](https://dni-criteria.carrd.co/) But weird hh fans please i beg AVOID ME i cant stand this much red. Weirdos who start drama and arguments better stay away because ill keep on going till the night._
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Taken by my awesome [girlfriend](https://github.com/LOVEBLAST).**
 
-![divider](https://media.discordapp.net/attachments/1156947236702392351/1248351410589007882/Untitled9_20240606220237.png?ex=66635959&is=666207d9&hm=ecb4255b17cb2dd30518bbeba3b7c236dd0d2870ce3a9c27c92a9c5516537732&=&format=webp&quality=lossless&width=1440&height=292)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**You are free to c+h and interact at anytimes except dnis .**
 
-_____
-* I cannot access entries, patreon and twt(along with many other things..) without vpn because im in Russia.
- *  I do not support anything thats happening.
-   *  If u see Venomshank at ur strawpage saying hi thats me.
-  * GRAPHIC AND DIVIDERS ARE MADE BY MY BF GHOST ILYSM!!!!!!!!!!
+ㅤㅤㅤㅤㅤㅤㅤㅤ**Im a minor and i do not want to have weird interactions with adults, but jokes are always fine .**
 
-![divider3](https://media.discordapp.net/attachments/1156947236702392351/1248353062037491753/Untitled5_20240606220910.png?ex=66635ae3&is=66620963&hm=835d101d80ab1823abd9a7ad8d9dcc55a805acb6d1a19ec3687d7cb6eabe390f&=&format=webp&quality=lossless&width=983&height=662)
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ **I sit on Safe server at Roblox zone and on 1st Safe Russian at the Mineshield zone .**
+
+ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ**Inspo is fine, just ask .**
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Not a system, nor an irl .**
+
+ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤㅤㅤㅤ**I cant view rentries and patreons .**
+
+ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ   ㅤㅤㅤㅤㅤ ㅤ**Go to my [strawpage](https://vizerdrowns.straw.page/) or [prnns page](https://en.pronouns.page/@Vizer) for more info .**
+
+![div2](https://64.media.tumblr.com/05f308bc2b81d4cb8f8fa68661e3e4d6/88a3859617d1e527-8a/s2048x3072/f339569f6d9ca8c967e00f7f5764b19bef349fa5.pnj)
+___
+> credits :
+>> Dividers by @sister-lucifer on tumblr.
+>>> Graphic by my [gf](https://github.com/LOVEBLAST) <3
