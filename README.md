@@ -19,7 +19,7 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Basic [DNI.](https://dni-criteria.carrd.co/)**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Taken by my awesome [girlfriend](https://github.com/LOVEBLAST).**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Taken by my awesome [girlfriend](https://github.com/SAVIOUR-ANGELS).**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**You are free to c+h and interact at anytimes except dnis .**
 
@@ -39,5 +39,5 @@ ___
 ___
 > credits :
 >> Dividers by @sister-lucifer on tumblr.
->>> Graphic by my [gf](https://github.com/LOVEBLAST) <3
+>>> Graphic by my [gf](https://github.com/SAVIOUR-ANGELS) <3
 >>>> If you are chronically online dont fucking interact no pixels wont hurt u
