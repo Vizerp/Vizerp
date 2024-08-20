@@ -40,3 +40,4 @@ ___
 > credits :
 >> Dividers by @sister-lucifer on tumblr.
 >>> Graphic by my [gf](https://github.com/LOVEBLAST) <3
+>>> If you are chronically online dont fucking interact no pixels wont hurt u
