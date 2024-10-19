@@ -26,7 +26,7 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ**Im a minor and i do not want to have weird interactions with adults, but jokes are always fine .**
 
-ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ **I sit on Safe server at Roblox zone and on 1st Safe Russian at the Mineshield zone .**
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤ **I sit on Safe server at Roblox zone and on AVA/AVM zone . (under docks) .**
 
  ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ**Inspo is fine, just ask .**
 
