@@ -34,7 +34,7 @@ ___
 
  ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤㅤㅤㅤ**I cant view rentries and patreons .**
 
- ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ   ㅤㅤㅤㅤㅤ ㅤ**Go to my [strawpage](https://vizerdrowns.straw.page/) or [prnns page](https://en.pronouns.page/@Vizer) for more info .**
+ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ   ㅤㅤㅤㅤㅤ ㅤ**Go to my [strawpage](https://roadsgoeveron.straw.page/) or [prnns page](https://en.pronouns.page/@Vizer) for more info .**
 
 ㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤ ![div2](https://64.media.tumblr.com/553ef1b4768add9acc97c77eb1ddff7b/2726966a42bb57e6-f6/s640x960/d759ea2c69050a5e9fa4d323a09494b68d8e8d1c.gifv)
 ___
