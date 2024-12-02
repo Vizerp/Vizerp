@@ -26,7 +26,7 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ**Im a minor and i do not want to have weird interactions with adults, but jokes are always fine .**
 
-ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ **I sit on Safe server at Roblox zone or on AVA/CRK zones .**
+ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ **I sit on Safe server at Roblox zone or on AVA/CR zones .**
 
  ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ**Inspo is fine, just ask .**
 
