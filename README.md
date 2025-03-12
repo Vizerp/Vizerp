@@ -1,7 +1,9 @@
 Hey chat
 
 Im cassiopeia
+
 um i dont want to remake my repository but ion wanna leave it old aswell
+
 im a minor
 
 [discord](https://discord.com/users/1156944032749064243) [strawpage](https://cassiopeiatrullyyyyyy.straw.page/)
