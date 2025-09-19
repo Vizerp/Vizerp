@@ -3,7 +3,7 @@
 </p>
 ㅤㅤ
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤ  ㅤ  ㅤㅤ     ㅤ     [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold&weight=300&size=16&duration=4800&pause=180&color=8E5CB5&center=true&multiline=true&width=435&lines=%E2%94%80+Cause+I+feel+like+Im+the+worst+%2C+;%E3%85%A4So+I+always+act+like+Im+the+best+!)](https://git.io/typing-svg)
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤ  ㅤ  ㅤㅤ   ㅤ     [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold&weight=300&size=16&duration=4800&pause=180&color=8E5CB5&center=true&multiline=true&width=435&lines=%E2%94%80+Cause+I+feel+like+Im+the+worst+%2C+;%E3%85%A4So+I+always+act+like+Im+the+best+!)](https://git.io/typing-svg)
 
 <p align="center">
 $\color{white}{Cassiopeia \space , \color{purple}{✦} \color{white}{\space Wemmbu \space .} }$
