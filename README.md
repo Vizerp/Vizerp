@@ -35,7 +35,7 @@ $\color{white}{I \space have \space very \space bad \space memory \space so \spa
 
 $\color{white}{Check \space out \space my \space socials \space for \space more \space info \space !!}$
 
-**[Strawpage](https://cassiopeiatrullyyyyyy.straw.page/)** $\color{purple}{✦ }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{purple}{✦ }$ **[Prnns.cc](https://pronouns.cc/@cassiopeiatruly)**
+**[Strawpage](https://cassiopeiatrullyyyyyy.straw.page/)** $\color{purple}{✦ }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{purple}{✦ }$ **[Prnns.cc](https://pronouns.cc/@cassiopeiatrulyy)**
 
 <br> ${\textsf{\color{grey}Cr to NAMIDAliule btw}}$ 
 <br>
