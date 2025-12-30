@@ -1,9 +1,6 @@
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=Vizerp&style=plastic&color=blueviolet&label=MUTINY" /> </div>
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    
-<p align="center">
-  <img width="742" height="418" src="https://s.iimg.su/s/19/gn0ZnWWxRNEndJ1dkDQKbV7y5v91lU5PvSMfGddA.png">
-</p>
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    my image bBROKE
 ㅤㅤ
 
 ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ     [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold&weight=300&size=16&duration=4800&pause=180&color=8E5CB5&center=true&multiline=true&width=435&lines=%E2%94%80+Cause+I+feel+like+Im+the+worst+%2C+;%E3%85%A4So+I+always+act+like+Im+the+best+!)](https://git.io/typing-svg)
