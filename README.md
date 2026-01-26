@@ -26,7 +26,7 @@ $\color{white}{I \space am \space mentally \space \color{greenyellow}{unstable \
 
 $\color{white}{I \space make \space kys \space \color{greenyellow}{|} \color{white}{\space kms \space jokes} }$
 
-$\color{white}{I \space can \space come \space off \space as \space mean \space \color{greenyellow}{/} \color{white}{\space make \space mean \space jokes \space . \space Often \space I \space am \space just \space playing \space around \space though } }$
+$\color{white}{I \space can \space come \space off \space as \space mean \space \color{greenyellow}{/} \color{white}{\space rude \space etc \space etc \space . \space Often \space I \space am \space just \space fucking \space around \space though } }$
 
 $\color{white}{My \space timezone \space Is \space \color{crimson}{GMT+3} }$
 
