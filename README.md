@@ -34,7 +34,7 @@ $\color{white}{I \space have \space very \space bad \space memory \space so \spa
 
 $\color{white}{Check \space out \space my \space shit \space for \space more \space info }$
 
-**[Strawpage](https://cassiopeiatruly.straw.page/)** $\color{greenyellow}{X }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{crimson}{X }$ **[Prnns.cc](https://pronouns.cc/@cassiopeiatrulyy)**
+**[Strawpage](https://cassiopeiatruly.straw.page/)** $\color{greenyellow}{X }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{crimson}{X }$ **[a fucking hundred](https://youtu.be/xyplRHz1zrI?si=MWo1WvaUQEtQOgQ6)**
 
 <br> ${\textsf{\color{grey}asscheeks }}$ 
 <br>
