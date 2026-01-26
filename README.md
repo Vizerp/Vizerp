@@ -1,42 +1,41 @@
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=Vizerp&style=plastic&color=blueviolet&label=MUTINY" /> </div>
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=Vizerp&style=plastic&color=green&label=BANNED!" /> </div>
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    my image bBROKE
-ㅤㅤ
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ   я не буду добавлять картинку заебал
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ     [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold&weight=300&size=16&duration=4800&pause=180&color=8E5CB5&center=true&multiline=true&width=435&lines=%E2%94%80+Cause+I+feel+like+Im+the+worst+%2C+;%E3%85%A4So+I+always+act+like+Im+the+best+!)](https://git.io/typing-svg)
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bold&weight=300&size=16&duration=4300&pause=500&color=8AF71D&center=true&multiline=true&width=435&lines=Angry+with+their+boring+conversations+%2C+;%E3%85%A4%E3%85%A4And+sick+of+doing+everything+they+say+!!)](https://git.io/typing-svg)
 
 <p align="center">
-$\color{white}{Cassiopeia \space , \color{purple}{✦} \color{white}{\space Wemmbu \space .} }$
+$\color{white}{Cassiopeia \space , \color{greenyellow}{✦} \color{white}{\space Ban \space .} }$
 <p align="center">
-$\color{white}{They \space \color{purple}{♯} \color{white} \space It \space , \color{purple}{✦} \color{white}{\space Any \space .} }$
+$\color{white}{He \space \color{greenyellow}{♯} \color{white} Idc \color{crimson}{✦} \color{white}{\space Any \space .} }$
 <p align="center">
-$\color{white}{Minor \space , \color{purple}{✦} \color{white}{\space Neurodivergent \space .} }$
+$\color{white}{Minor \space , \color{greenyellow}{✦} \color{white}{\space Neurodivergent \space .} }$
 <p align="center">
-$\color{white}{Sign \space Ata \space !!}$
+$\color{white}{Sign \space Ata \space HOES}$
 
 
 <details align="center"> 
-<summary>$\color{purple}{★}$</summary>  
-<br> ${\textsf{\color{#8E5BB5}Yo hi !!! \color{#White}Pretend this Is awesome . And read ts . }}$ 
+<summary>$\color{crimson}{X}$</summary>  
+<br> ${\textsf{\color{#32DB15}Yo \color{#White} collect my BANS}}$ 
 <br>
   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 
-$\color{darkviolet}{BYI \space :}$ 
+$\color{crimson}{BYI \space :}$ 
 
-$\color{white}{I \space am \space a \space \color{purple}{fictionkin \space .} }$
+$\color{white}{I \space am \space mentally \space \color{greenyellow}{unstable \space .} }$
 
-$\color{white}{I \space make \space kys \space \color{purple}{|} \color{white}{\space kms \space jokes} }$
+$\color{white}{I \space make \space kys \space \color{greenyellow}{|} \color{white}{\space kms \space jokes} }$
 
-$\color{white}{I \space can \space come \space off \space as \space mean \space \color{purple}{/} \color{white}{\space make \space mean \space jokes \space . \space Often \space I \space am \space just \space playing \space around \space though \space ! } }$
+$\color{white}{I \space can \space come \space off \space as \space mean \space \color{greenyellow}{/} \color{white}{\space make \space mean \space jokes \space . \space Often \space I \space am \space just \space playing \space around \space though } }$
 
-$\color{white}{My \space timezone \space Is \space \color{purple}{GMT+3 \space .} }$
+$\color{white}{My \space timezone \space Is \space \color{crimson}{GMT+3} }$
 
-$\color{white}{I \space have \space very \space bad \space memory \space so \space I \space probably \space \color{purple}{wont\color{white} \space remember \space you \space . }}$
+$\color{white}{I \space have \space very \space bad \space memory \space so \space I \space probably \space \color{greenyellow}{wont} \color{white} \space remember \space you}$
 
-$\color{white}{Check \space out \space my \space socials \space for \space more \space info \space !!}$
+$\color{white}{Check \space out \space my \space shit \space for \space more \space info }$
 
-**[Strawpage](https://cassiopeiatruly.straw.page/)** $\color{purple}{✦ }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{purple}{✦ }$ **[Prnns.cc](https://pronouns.cc/@cassiopeiatrulyy)**
+**[Strawpage](https://cassiopeiatruly.straw.page/)** $\color{greenyellow}{X }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{crimson}{X }$ **[Prnns.cc](https://pronouns.cc/@cassiopeiatrulyy)**
 
-<br> ${\textsf{\color{grey}Cr to NAMIDAliule btw}}$ 
+<br> ${\textsf{\color{grey}asscheeks }}$ 
 <br>
 </details>
