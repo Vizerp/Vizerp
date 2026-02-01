@@ -1,8 +1,8 @@
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=Vizerp&style=plastic&color=green&label=BANNED!" /> </div>
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ   я не буду добавлять картинку заебал
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ    ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ   ㅤ   <div align="center"><a href="https://gifyu.com/image/bkj48"><img src="https://s12.gifyu.com/images/bkj48.gif" alt="bangif" border="0" /></a>
 
-ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤㅤㅤ   ㅤ     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bold&weight=300&size=16&duration=4300&pause=500&color=8AF71D&center=true&multiline=true&width=435&lines=Angry+with+their+boring+conversations+%2C+;%E3%85%A4%E3%85%A4And+sick+of+doing+everything+they+say+!!)](https://git.io/typing-svg)
+ㅤ  ㅤ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤㅤ  <div align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bold&weight=300&size=16&duration=4300&pause=500&color=8AF71D&center=true&multiline=true&width=435&lines=Angry+with+their+boring+conversations+%2C+;%E3%85%A4%E3%85%A4And+sick+of+doing+everything+they+say+!!)](https://git.io/typing-svg)
 
 <p align="center">
 $\color{white}{Cassiopeia \space , \color{greenyellow}{✦} \color{white}{\space Ban \space .} }$
