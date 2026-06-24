@@ -6,3 +6,6 @@ ${\textsf{\color{grey}befriend me }}$
 
 ${\textsf{\color{grey}we wa we wa }}$ 
 <br>
+
+
+anyones free to int and cuddle n hide and shi im really open to making buddies
