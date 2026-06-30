@@ -1,6 +1,6 @@
 <br> ${\textsf{\color{grey}IM REMAKING THIS }}$ 
 
-${\textsf{\color{grey}a traumagen system endos/demo/willowgens dni + irls dni aswell . uhhh basic dni wtv }}$ 
+${\textsf{\color{grey}a ramcoa system endos/demo/willowgens dni + irls dni aswell . uhhh basic dni wtv }}$ 
 
 ${\textsf{\color{grey}befriend me }}$ 
 
