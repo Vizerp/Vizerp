@@ -35,7 +35,7 @@ $\color{white}{I \space have \space very \space bad \space memory \space so \spa
 
 $\color{white}{Check \space out \space my \space shit \space for \space more \space info }$
 
-**[Strawpage](https://cassiopeiatruly.straw.page/)** $\color{purple}{✦ }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{violet}{✦ }$ **[Rentry](https://rentry.co/unnamedmain)**
+**[Prnns.cc](https://pronouns.cc/@unnamedcollective)** $\color{purple}{✦ }$ **[Atabook](https://cassiopeiatruly.atabook.org/)** $\color{violet}{✦ }$ **[Rentry](https://rentry.co/unnamedmain)**
 
 <br> ${\textsf{\color{grey}ac RottingHyacinths}}$ 
 <br>
